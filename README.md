@@ -1,2 +1,2 @@
-# ideia-o
+# ideiação
 Venha aprender conosco
